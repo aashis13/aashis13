@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+  - I'm Aashis Kafle, 
+  - a passionate IT student from Nepal 🇳🇵,
+  - 📫 How to reach me: kafelaashish07@gmail.com
+  -  ⚡ Fun fact: i am in love  with  coding💻, drawing 🖌.
