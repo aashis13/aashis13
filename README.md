@@ -16,5 +16,5 @@ Here are some ideas to get you started:
 -->
   - I'm Aashis Kafle, 
   - a passionate IT student from Nepal 🇳🇵,
-  - 📫 How to reach me: kafelaashish07@gmail.com
+  - 📫 How to reach me: kafleaashish07@gmail.com
   -  ⚡ Fun fact: i am in love  with  coding💻, drawing 🖌.
